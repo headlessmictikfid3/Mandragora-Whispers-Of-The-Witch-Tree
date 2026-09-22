@@ -220,4 +220,4 @@ Mandragora: Whispers of the Witch Tree is offered as a complete free version wit
 Don't miss out on the adventure of a lifetime! Download Mandragora: Whispers of the Witch Tree free today and step into a world of magic and mystery.
 
 ---
-**Last updated:** 2026-09-22 09:01:06 UTC
+**Last updated:** 2026-09-22 14:20:40 UTC
